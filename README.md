@@ -2,7 +2,7 @@
 
 ##### 主网址 http://xlb20.com
 
-###### 备用 http://xlb21.buzz http://xlb22.buzz http://xlb23.buzz
+###### 备用 http://xlb2021.xyz http://xlb2022.xyz
 
 ------
 
